@@ -1,0 +1,2 @@
+# Emoji-
+For all
